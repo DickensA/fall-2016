@@ -53,12 +53,14 @@ As an individual I have previously working in music promotions and communication
 
 To grow this knowledge I could access community blogs, discuss with other campus experts and test a variety of social media delivery tools available online. I could also take free online courses on communications and encourage my peers on the committee to do the same. 
 
-
 Timeline: 
 
-Nov-Dec (approx. 2 weeks) = Analyse current social media communications 
+Nov-Dec (approx. 2 weeks) = Analyse current social media communications
+
 Dec (before 16th December) = Present findings to committee and hold round table discussion
+
 Dec-Jan (approx. 4 weeks) = Develop strategy & documents to support this, with community input
+
 Jan = hold meeting with committee to confirm strategy & put into place
 
 ## Planning for the Future
